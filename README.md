@@ -1,6 +1,6 @@
 # Livro de receitas :man_cook:
 
-Bem vindo(a) ao meu livro de receitas :wave:
+Bem vindo(a) ao meu livro de receitas :book:
 
 -   [Lasanha](https://github.com/JonathaVitor/Receita/blob/main/lasanha.md)
 -   [Bolo de limão](https://github.com/JonathaVitor/Receita/blob/main/bolo.md)
