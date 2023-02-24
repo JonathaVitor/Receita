@@ -1,4 +1,4 @@
-# Bolo de limão 
+# Bolo de limão 🍰🍋
 
 ### Ingredientes
 
@@ -21,16 +21,16 @@
 
 ### Modo de Preparo
 
-Bata no liquidificador as gemas, o açúcar e margarina.
+1. Bata no liquidificador as gemas, o açúcar e margarina.
 
-Em seguida junte o suco e raspas de limão, o leite e farinha aos poucos.
+2. Em seguida junte o suco e raspas de limão, o leite e farinha aos poucos.
 
-Por último misture, delicadamente, as claras em neve e o fermento.
+3. Por último misture, delicadamente, as claras em neve e o fermento.
 
-Espalhe a massa em uma assadeira retangular média já untada e asse no forno (já preaquecido) por mais ou menos 40 minutos em temperatura de 180ºC.
+4. Espalhe a massa em uma assadeira retangular média já untada e asse no forno (já preaquecido) por mais ou menos 40 minutos em temperatura de 180ºC.
 
 ### Cobertura 
 
-Misture tudo em uma panela pequena e leve ao fogo mexendo sempre até levantar fervura.
+1. Misture tudo em uma panela pequena e leve ao fogo mexendo sempre até levantar fervura.
 
-Derrame sobre o bolo, espere esfriar e se delicie.
+2. Derrame sobre o bolo, espere esfriar e se delicie.
