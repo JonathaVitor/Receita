@@ -1,4 +1,4 @@
-# Mousse de maracujá 
+# Mousse de maracujá 🍨
 
 ### Ingredientes 
 
@@ -10,12 +10,12 @@
 
 ### Modo de preparo
 
-Em um liquidificador, bata o creme de leite, o leite condensado e o suco concentrado de maracujá.
+1. Em um liquidificador, bata o creme de leite, o leite condensado e o suco concentrado de maracujá.
 
-Em uma tigela, despeje a mistura e leve à geladeira por, no mínimo, 4 horas.
+2. Em uma tigela, despeje a mistura e leve à geladeira por, no mínimo, 4 horas.
 
 ### Calda
 
-Misture a polpa de maracujá com o açúcar. Leve à uma panela, em fogo baixo, mexa bem e deixe ferver. 
+1. Misture a polpa de maracujá com o açúcar. Leve à uma panela, em fogo baixo, mexa bem e deixe ferver. 
 
-Mexa mais um pouco até ficar em ponto de calda. Depois é só levar à geladeira junto com a mousse.
+2. Mexa mais um pouco até ficar em ponto de calda. Depois é só levar à geladeira junto com a mousse.
