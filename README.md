@@ -1,6 +1,6 @@
-# Livro de receitas :man_cook:
+# Livro de receitas :closed_book::man_cook:
 
-Bem vindo(a) ao meu livro de receitas :book:
+Bem vindo(a) ao meu livro de receitas :fork_and_knife::curry:
 
 -   [Lasanha](https://github.com/JonathaVitor/Receita/blob/main/lasanha.md)
 -   [Bolo de limão](https://github.com/JonathaVitor/Receita/blob/main/bolo.md)
