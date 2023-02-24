@@ -25,4 +25,4 @@
 
 4. Cubra com papel-alumínio e leve ao forno médio (180 graus), preaquecido, por 20 minutos, ou até que a massa fique macia. Remova o papel-alumínio e volte ao forno por mais 5 minutos, ou até dourar o queijo.
 
-5. Retire do forno, espere efriar e sirva-se.
+5. Está pronto.
