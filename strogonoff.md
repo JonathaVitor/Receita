@@ -15,10 +15,12 @@
 
 ### Modo de Preparo
 
-Em uma panela a fogo médio, acrescente o óleo e o caldo de galinha e, dissolva o caldo. Logo em seguida coloque o frango picado em cubos na panela e deixe cozinhar, sempre dando uma olhadinha para não queimar.
+1. Em uma panela a fogo médio, acrescente o óleo e o caldo de galinha e, dissolva o caldo. 
 
-Assim que o frango estiver bem cozido, acrescente o molho de tomate, o ketchup, a mostarda e champignon a gosto.
-
-Abaixe o fogo e coloque o creme de leite e mexa bem até se tornar um creme homogêneo.
-
-Está pronto para servir.
+2. Em seguida coloque o frango picado em cubos na panela e deixe cozinhar, sempre dando uma olhadinha para não queimar.
+ 
+3. Assim que o frango estiver bem cozido, acrescente o molho de tomate, o ketchup, a mostarda e champignon a gosto.
+ 
+4. Abaixe o fogo e coloque o creme de leite e mexa bem até se tornar um creme homogêneo.
+ 
+5. Está pronto para servir.
