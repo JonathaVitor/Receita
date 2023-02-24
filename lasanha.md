@@ -1,5 +1,5 @@
 
-# Lasanha
+# Lasanha 🍰
 
 ### Ingredientes
 
@@ -17,12 +17,12 @@
 
 ### Modo de Preparo
 
-Em uma panela grande, coloque o óleo e leve ao fogo alto para aquecer. Junte a cebola e refogue por 2 minutos. Acrescente a carne, aos poucos, e frite por 10 minutos, ou até o líquido secar. Adicione o tomate e refogue por 3 minutos, ou até que comece a desmanchar.
+1. Em uma panela grande, coloque o óleo e leve ao fogo alto para aquecer. Junte a cebola e refogue por 2 minutos. Acrescente a carne, aos poucos, e frite por 10 minutos, ou até o líquido secar. Adicione o tomate e refogue por 3 minutos, ou até que comece a desmanchar.
 
-Junte a polpa de tomate, a água, o tempero e o sal, e deixe cozinhar em fogo baixo, com a panela semitampada, por 5 minutos, ou até encorpar levemente. Retire do fogo.
+2. Junte a polpa de tomate, a água, o tempero e o sal, e deixe cozinhar em fogo baixo, com a panela semitampada, por 5 minutos, ou até encorpar levemente. Retire do fogo.
 
-Em um refratário retangular grande (23 x 35 cm), faça camadas com o molho, a massa, o presunto e a muçarela, intercalando e repetindo até finalizar com o molho e a muçarela.
+3. Em um refratário retangular grande (23 x 35 cm), faça camadas com o molho, a massa, o presunto e a muçarela, intercalando e repetindo até finalizar com o molho e a muçarela.
 
-Cubra com papel-alumínio e leve ao forno médio (180 graus), preaquecido, por 20 minutos, ou até que a massa fique macia. Remova o papel-alumínio e volte ao forno por mais 5 minutos, ou até dourar o queijo.
+4. Cubra com papel-alumínio e leve ao forno médio (180 graus), preaquecido, por 20 minutos, ou até que a massa fique macia. Remova o papel-alumínio e volte ao forno por mais 5 minutos, ou até dourar o queijo.
 
-Retire do forno e sirva em seguida.
+5. Retire do forno, espere efriar e sirva-se.
