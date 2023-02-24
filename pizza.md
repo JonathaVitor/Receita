@@ -1,4 +1,4 @@
-# Pizza de camarão :pizza:
+# Pizza de camarão :pizza::fried_shrimp:
 
 ### Ingredientes
 
@@ -18,12 +18,12 @@
 
 ### Modo de preparo
 
-Em uma tigela, coloque o fermento, o sal, o açúcar e misture até virar líquido. Junte a água, o óleo e misture bem. 
+1. Em uma tigela, coloque o fermento, o sal, o açúcar e misture até virar líquido. Junte a água, o óleo e misture bem. 
 
-Acrescente a farinha aos poucos até que ao sovar não grude nas mãos. Sove bem a massa e divida em 2 partes. Deixe crescer por 15 minutos ou até dobrar de volume. 
+2. Acrescente a farinha aos poucos até que ao sovar não grude nas mãos. Sove bem a massa e divida em 2 partes. Deixe crescer por 15 minutos ou até dobrar de volume. 
 
-Em uma panela, coloque o azeite, a cebola e deixe fritar por 5 minutos, acrescente o tomate, sal, pimenta e deixe refogar, mexendo de vez em quando, por 10 minutos ou até o tomate desmanchar e formar um molho espesso.
+3. Em uma panela, coloque o azeite, a cebola e deixe fritar por 5 minutos, acrescente o tomate, sal, pimenta e deixe refogar, mexendo de vez em quando, por 10 minutos ou até o tomate desmanchar e formar um molho espesso.
 
-Acrescente o camarão, misture e deixe cozinhar por 5 minutos. Retire do fogo e reserve. Abra as massas com o rolo, coloque em assadeira e espalhe o recheio de camarão sobre elas. 
+4. Acrescente o camarão, misture e deixe cozinhar por 5 minutos. Retire do fogo e reserve. Abra as massas com o rolo, coloque em assadeira e espalhe o recheio de camarão sobre elas. 
 
-Com o auxílio de uma colher (sopa) espalhe pedacinhos de catupiry por cima do recheio de camarão, decore com azeitonas. Leve ao forno, preaquecido, por 15 minutos ou até assar.
+5. Com o auxílio de uma colher (sopa) espalhe pedacinhos de catupiry por cima do recheio de camarão, decore com azeitonas. Leve ao forno, preaquecido, por 15 minutos ou até assar.
